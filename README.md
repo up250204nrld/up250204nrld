@@ -1,4 +1,5 @@
 ## Hi there 👋
+![DONDA](https://preview.redd.it/official-donda-with-child-cover-gods-country-version-v0-2fk7xidnqarc1.jpeg?width=338&format=pjpg&auto=webp&s=a45378d15c3144f34d5aa6bd503904c29c5a386a)
 
 <!--
 **up250204nrld/up250204nrld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
